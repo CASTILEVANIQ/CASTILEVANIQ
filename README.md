@@ -1,5 +1,6 @@
   
-  　    　  　  　    　   　   　   　   [ata](https://angxlpraize.atabook.org/)   　 **[STRAW](https://sonic2863.straw.page/)** <img width="736" height="993" alt="بدون اسم215_20250913084426" src="https://github.com/user-attachments/assets/96597ba9-42ae-4b8a-ac05-2f67ea3922f8" />
+  　    　  　  　    　   　   　   　   [ata](https://angxlpraize.atabook.org/)   　 **[STRAW](https://sonic2863.straw.page/)** ![IMG_2698](https://github.com/user-attachments/assets/9f3b9866-446a-4699-8b75-c7f144bb6578)
+
  alt="OWARI">
              ˚₊‧𐂂 Likes+Dislikes 𖠰 ‧₊˚
 ˚        ✦      .    .    ˚  .           . ✦       ˚         .
