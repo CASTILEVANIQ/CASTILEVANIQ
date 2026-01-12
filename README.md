@@ -1,7 +1,8 @@
   
-  　    　  　  　    　   　   　   　   [ata](https://angxlpraize.atabook.org/)   　 **[STRAW](https://sonic2863.straw.page/)** ![bfbf1897791a35ade151c46be211ea9aba963c61 gifv](https://github.com/user-attachments/assets/9e04d505-fddc-413f-8dd0-0590bde36b6b)
+  　    　  　  　    　   　   　   　   [ata](https://angxlpraize.atabook.org/)   　 **[STRAW](https://sonic2863.straw.page/)** 
+                                  ![bfbf1897791a35ade151c46be211ea9aba963c61 gifv](https://github.com/user-attachments/assets/9e04d505-fddc-413f-8dd0-0590bde36b6b)
 
- alt="OWARI">
+ 
              ˚₊‧𐂂 Likes+Dislikes 𖠰 ‧₊˚
 ˚        ✦      .    .    ˚  .           . ✦       ˚         .
 ✦      .    .      ✦  ˚ ✦      .    .      ✦  ˚ ✦      .    .      ✦  ˚
