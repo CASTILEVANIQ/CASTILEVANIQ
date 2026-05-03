@@ -25,4 +25,4 @@
 
 
 
-                                ALUCARD  ⸸  20
+                                HEHLLSING    🪨
